@@ -18,7 +18,7 @@
 - [琪露诺的完美瞎眼教室](videos/Cirno.mp4)
 - [危险久本](videos/Danger.mp4)
 - [埃及猫Ankha zone和谐版](videos/Ankha.mp4)
-- [埃及猫Ankha zone完整版](videos/Ankha.md)
+- [埃及猫Ankha zone完整版(含有不雅内容)](videos/Ankha.md)
 - [骨灰扬诺夫](videos/AshesKiller.mp4)
 - [香蕉君](videos/Av10492.mp4)
 - [章鱼哥自杀](videos/Octopus.mp4)
