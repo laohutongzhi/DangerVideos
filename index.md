@@ -26,7 +26,7 @@
 - [埃及猫Ankha zone和谐版](videos/Ankha.mp4)
 - [埃及猫Ankha zone完整版(含有不雅内容)](videos/Ankha.md)
 - [骨灰扬诺夫](videos/AshesKiller.mp4)
-- [香蕉君](videos/Av10492.mp4)
+- [香蕉君](videos/banana.mp4)
 - [章鱼哥自杀](videos/Octopus.mp4)
 - [MRRENOL](videos/MARENOL.mp4)
 - [Mikuonion初音葱](videos/MIKUONION.mp4)
